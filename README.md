@@ -1,6 +1,5 @@
-## 🐱👍
-## Me Varis👍
-## He/Him✨
+## Me Varis 🐱🥤
+- He/Him✨
 - Nothing more🤠
 
 <!--
